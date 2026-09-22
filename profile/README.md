@@ -9,6 +9,6 @@
 
 - **[nattomaki10000](https://github.com/nattomaki10000)**
 - **[usagi999](https://github.com/usagish999-creator)**
-- **[at...](https://github.com/at052519p21)**
+- **[at052519p21](https://github.com/at052519p21)**
 
 ---
